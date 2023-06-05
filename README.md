@@ -4,6 +4,7 @@
 - [7-Things before you start video](https://www.youtube.com/watch?v=wq1GDVwWz3g&ab_channel=CharlieChang)
 - [Shopify](https://www.shopify.com/free-trial?irclickid=QVsUTZ0XdxyPRPNwv9wC4xpkUkF0kQ1tl0Q3TU0&irgwc=1&partner=4095081&affpt=excluded)
 - [Alibaba](https://www.alibaba.com/?src=sem_ggl&field=UG&from=sem_ggl&cmpgn=9922923043&adgrp=97780318062&fditm=&tgt=kwd-14739453&locintrst=&locphyscl=1030634&mtchtyp=e&ntwrk=g&device=c&dvcmdl=&creative=439312800697&plcmnt=&plcmntcat=&aceid=&position=&gad=1&gclid=Cj0KCQjwj_ajBhCqARIsAA37s0zcGF8imTMI3WnMUvYfQvv19nK3yopS_mf9_KXD78xYp8pepjcT8fIaAjsKEALw_wcB)
+- [Affiliate marketing](https://www.bigcommerce.com/articles/ecommerce/affiliate-marketing/)
 
 ## Take Advantage
 
